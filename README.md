@@ -1,1 +1,3 @@
-# SeaBubblesHawaii
+## SeaBubblesHawaii
+# Vanessa Brinkman
+# Julie Bratkov
